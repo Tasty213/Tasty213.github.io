@@ -1,4 +1,4 @@
-A "Robin Hood Tax" On Financial Institutions
+A Robin Hood Tax On Financial Institutions
 ============================================
 
 A tiny tax on stock market transactions would raise significant revenue 
